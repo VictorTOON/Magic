@@ -34,6 +34,6 @@ Match contra Glee, n tem mto segredo, G1 o oponente tava jogando tap land enquan
 
 ### Match 8 - Jund Glee 0x0
 
-Eu ia jogar contra um Glee, mas aí eu e o oponente discutimos, decidimos dar empate, eu estava mto bem colocado, estava em 4o lugar, e era o primeiro entre os 6x1, meu oponente estava mais abaixo, então ele ficou bem em dúvida. Começamos o jogo, eu keepei a mão inicial, ele tava mulligando, aí ele disse que tava cansado e decidiu splitar mesmo. Infelizmente acho que ele ficou em 9o lugar.
+Eu ia jogar contra um Glee, mas aí eu e o oponente discutimos, decidimos dar empate durante o jogo, eu estava mto bem colocado, estava em 4o lugar, e era o primeiro entre os 6x1, meu oponente estava mais abaixo, então ele ficou bem em dúvida. Começamos o jogo, eu keepei a mão inicial, ele tava mulligando, aí ele disse que tava cansado e decidiu splitar mesmo. Infelizmente acho que ele ficou em 9o lugar.
 
 No final, fiquei em 6o e peguei vaga pro CLM. A galera n quis splitar o top 8, joguei contra o spock dnv kkkkk pq ele ficou em terceiro e eu em sexto, o cara é duro na queda, foi 2x1 pra ele dnv, dps eles splitaram o top 4, levei 700 conto pra casa e o top 4 levou uns 1200, por aí.
