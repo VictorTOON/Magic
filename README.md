@@ -1,4 +1,4 @@
-# Pauper Mont 12k Mono Red 6o lugar 6-1-1
+# Pauper Mont 12k Mono Red 6° lugar 6-1-1
 
 Inspirado pelo report da Shira, vou escrever o meu bem rapidamente aqui e dar minha opinião nas matchs.
 
