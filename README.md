@@ -30,7 +30,7 @@ Dessa vez era o próprio spock que eu enfrentei kkkk eu tava mais nervoso ainda 
 
 ### Match 7 - Jund Glee 2x1
 
-Match contra Glee, n tem mto segredo, G1 o oponente tava jogando tap land enquanto eu bazucava ele com tomb raider, ganhei mto rápido. Pós side eu subo 2 selos de fogo que eu tinha no side. No g2 eu fiz uma missplay sem tamanho, o cara tinha 2 mana em pé e 1 eldrazi, e eu n vi os eldrazi, achei que ele só tinha 2 manas, Com 2 manas, ele só poderia castar weather, nem pensei na canhonada, pq n vi o eldrazi, enfim, dei kuldotha + bush e tomei a canhonada mais absurda da história, percebi meu erro, fiquei puto cmg mesmo, concedi e já fomos pro G3. Aí n teve outra, saí com great furnace, 2 tomb raider e 1 epicurista na mão inicial, 7 de dano em 2 turnos e aí já foi.
+Match contra Glee, n tem mto segredo, G1 o oponente tava jogando tap land enquanto eu bazucava ele com tomb raider, ele até conseguiu castar uma crisálida, mas eu tinha metalcraft, dei primeiro um galvanic nela, pro oponente ter que sacrificar os 2 spawn, e dps dei um bolt, pra matar ela, assim vc limpa os 3 bicho, dps disso ele n tinha mais ameaça e eu só finalizei. Pós side eu subo 2 selos de fogo que eu tinha no side. No g2 eu fiz uma missplay sem tamanho, o cara tinha 2 mana em pé e 1 eldrazi, e eu n vi os eldrazi, achei que ele só tinha 2 manas, Com 2 manas, ele só poderia castar weather, nem pensei na canhonada, pq n vi o eldrazi, enfim, dei kuldotha + bush e tomei a canhonada mais absurda da história, percebi meu erro, fiquei puto cmg mesmo, concedi e já fomos pro G3. Aí n teve outra, saí com great furnace, 2 tomb raider e 1 epicurista na mão inicial, 7 de dano em 2 turnos e aí já foi.
 
 ### Match 8 - Jund Glee 0x0
 
