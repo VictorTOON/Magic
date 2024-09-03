@@ -1,4 +1,4 @@
-# Magic
+# Pauper Mont 12k
 
 Inspirado pelo report da Shira, vou escrever o meu bem rapidamente aqui e dar minha opinião nas matchs.
 
