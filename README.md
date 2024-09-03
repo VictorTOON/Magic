@@ -16,7 +16,9 @@ Essa match foi bem estranha, oponente mulligou a 5 nos dois jogos, keepou uma m�
 
 ### Match 4 - gruul LD 2x1
 
-Match 1 ocorreu a play do grenade que mandei no grupo aí, match 2 lembro que ele me atropelou, e match 3 eu tinha vantagem por estar começando, então era só vir com uma mão estourada que n tinha segredo. Eu to sem Raze no side, então só subi os end the festivities pra ajudar a limpar os 0/1, tem que tomar cuidado nessa match com weather e breath weapon, mas se vc começar, não é pra ser mto difícil. Não tenha medo de gastar galvanic + bolt ou bolt + bolt em crisálida, pq vc garante mais tempo dos seus bichos na mesa batendo, mesmo que perca 6 ou 7 de dano direto com os raios (minha opinião).
+Match 1 ocorreu a play do grenade que mandei no grupo aí*, match 2 lembro que ele me atropelou, e match 3 eu tinha vantagem por estar começando, então era só vir com uma mão estourada que n tinha segredo. Eu to sem Raze no side, então só subi os end the festivities pra ajudar a limpar os 0/1, tem que tomar cuidado nessa match com weather e breath weapon, mas se vc começar, não é pra ser mto difícil. Não tenha medo de gastar galvanic + bolt ou bolt + bolt em crisálida, pq vc garante mais tempo dos seus bichos na mesa batendo, mesmo que perca 6 ou 7 de dano direto com os raios (minha opinião).
+
+*Pra quem n viu no grupo, o oponente mulligou e abriu de floresta, arbor elf. EU respondi com montanha + chain lightning no arbor elf. O cara desceu wild growth na floriesta, outra floresta e outro arbor elf. Ele só tinha 2 cartas na mão e eu tava sem bolt, mas eu tinha na mão um tomb raider e uma goblin grenade. Desci uma montanha, tomb raider e grenade no arbor elf. Pode parecer overkill perder 2 cartas pra matar ele, mas o oponente ficou com 2 na mão e ficou comprando carta e passando uns 3 turnos até ele comprar algo, e eu tinha mais gás na mão pra correr contra o relógio, tinha synth, implemento, eventualmente comprei kuldotha, etc.
 
 ### Match 5 - UR Spock 2x0
 
